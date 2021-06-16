@@ -1,5 +1,5 @@
 - Hi, I’m Jamie Tinker
-
+- Linkedin: https://www.linkedin.com/in/jamie-tinker-9a06451b0/
 
 
 
